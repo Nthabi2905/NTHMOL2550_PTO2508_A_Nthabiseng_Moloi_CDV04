@@ -53,9 +53,7 @@ In crafting this cover letter, I focused on:
 
 ## 📸 Preview
 
-## 📸 Preview
-
-![Cover Letter Preview](/NTHMOL2550_PTO2508_A_Nthabiseng_Moloi_CDV04_page-0001.jpg)
+(/NTHMOL2550_PTO2508_A_Nthabiseng_Moloi_CDV04_page-0001.jpg)
 
 ---
 
