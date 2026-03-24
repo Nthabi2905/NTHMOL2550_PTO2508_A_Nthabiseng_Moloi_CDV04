@@ -47,7 +47,7 @@ In crafting this cover letter, I focused on:
 
 ## 📄 Link to Cover Letter
 
-👉 _[Paste your Google Docs link here]_
+👉 _[[Cover Letter](https://docs.google.com/document/d/1c4HIfDjfABsaE5iHIsH5pq1Qw0AxXjhVQLDBB_UJCHQ/edit?usp=sharing)]_
 
 ---
 
