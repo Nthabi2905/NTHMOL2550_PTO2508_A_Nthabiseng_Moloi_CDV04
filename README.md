@@ -53,7 +53,7 @@ In crafting this cover letter, I focused on:
 
 ## 📸 Preview
 
-![Cover Letter Preview](/preview.jpg)
+![Cover Letter Preview](/preview.png)
 
 ---
 
